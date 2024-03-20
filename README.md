@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @iBlocky
+- 👀 I’m interested in valorant checkers & discord bots.
+- 📫 You can reach me on discord= igblocky
+- ⚡ Fun fact: Im ascendent 1 on valorant.
