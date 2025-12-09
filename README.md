@@ -1,0 +1,3 @@
+- 🌱 I’m currently learning how to code/script
+- 🤔 I’m looking for help with how I can learn
+- 😄 Pronouns: he/him
